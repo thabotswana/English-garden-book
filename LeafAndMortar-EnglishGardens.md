@@ -86,4 +86,4 @@ Heath paths should be made by either planting or sowing. The common ling (*Callu
 
 ![Calluna vulgaris](3.jpg)
 
-*Calluna vulgaris, or known more commonly as heather, is a wonderful species for use along garden paths.*
+*Calluna vulgaris, more commonly as heather, is a wonderful species for use along garden paths.*
